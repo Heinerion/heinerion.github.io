@@ -8,4 +8,5 @@ Unser Held wurde Zeuge einer Außeinandersetzung  zweier ungleicher Kontrahenden
 * Gutherzig
 * Gelangweilt
 * Vielleicht ein bisschen auf der simpleren Seite ;-)
-* 
+
+> “You gotta train like hell until the point where your hair falls out. That’s the only way to become truly strong.” – Saitama
