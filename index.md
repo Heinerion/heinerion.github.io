@@ -11,5 +11,5 @@ Unser Held wurde Zeuge einer Außeinandersetzung  zweier ungleicher Kontrahenden
 
 ## Perle der Weisheit
 
-> “You gotta train like hell until the point where your hair falls out. That’s the only way to become truly strong.”  
+> You gotta train like hell until the point where your hair falls out. That’s the only way to become truly strong.  
 > – Saitama
