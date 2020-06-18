@@ -13,3 +13,5 @@ Unser Held wurde Zeuge einer Außeinandersetzung  zweier ungleicher Kontrahenden
 
 > You gotta train like hell until the point where your hair falls out. That’s the only way to become truly strong.  
 > – Saitama
+
+<img src="http://onepunchman-anime.net/character/img/detail_saitama.png"/>
